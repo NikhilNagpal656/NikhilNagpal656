@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **nikhil.nagpal656@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** My Own Projects
-- 🌱 **I’m currently learning:** Mobile App Developement
+- 🌱 **I’m currently learning:** Full Stack Developement
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 😄 **Pronouns:** Nikhil Nagpal
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
